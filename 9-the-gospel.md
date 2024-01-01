@@ -118,21 +118,23 @@ There is only one way out of this
 
 <br>
 
+### IMPORTANT! HOW TO GET SAVED
+
 Everybody has a choice of how to respond to this, we can 
 either accept his way, reject it, or ignore the message
 (which is the same as rejecting). 
 But how to accept it?
 By throwing away our own way, our own righteousness, put 
 trust in his righteousness, and call upon his name in your 
-heart... Jesus save me! Done
+heart... Jesus save me! I trust in what you did for me. Done(If done honestly in the heart)
 
-У каждого есть выбор, как на это реагировать: мы можем либо 
-принять его путь, либо отвергнуть его, либо проигнорировать 
-послание (что то же самое, что и отвергнуть). 
+У каждого есть выбор, как реагировать на это, мы можем 
+либо принять его путь, либо отвергнуть его, либо проигнорировать послание
+(что то же самое, что и отвергнуть). 
 Но как принять его?
-Отбросив свой собственный путь, свою собственную 
-праведность, довериться Его праведности и призвать Его имя 
-в своем сердце... Иисус, спаси меня! Готово
+Отбросив свой собственный путь, свою собственную праведность, довериться 
+уповать на Его праведность и призывать Его имя в своем 
+сердцем... Иисус, спаси меня! Я верю в то, что Ты сделал для меня. Выполнено (если сделано искренне в сердце)
 
 <details>
 <summary>Romans 10:3</summary>
