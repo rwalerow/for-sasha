@@ -17,6 +17,54 @@ We all have sinned
 
 <br>
 
+Ask yourself the question... are you more religious then pharacies? Do you give tithes from everything you have? Do you fast? Yet... he is considered lost. Be honest with yourself.
+
+Задайте себе вопрос: более ли вы религиозны, чем фараоны? Отдаете ли вы десятину со всего, что у вас есть? Поститесь ли вы? И все же... он считается погибшим. Будьте честны с собой.
+
+
+<details>
+<summary>Luke 18:9-14</summary>
+
+[English](https://www.biblegateway.com/passage/?search=Luke+18%3A9-14&version=KJV)  
+
+[Russian](https://www.biblegateway.com/passage/?search=Luke+18%3A9-14&version=RUSV)   
+
+[Polish](https://www.biblegateway.com/passage/?search=Luke+18%3A9-14&version=UBG)    
+
+</details>
+
+<details>
+<summary>Or this guy Luke 18:20-23</summary>
+
+[English](https://www.biblegateway.com/passage/?search=Luke+18%3A20-23&version=KJV)  
+
+[Russian](https://www.biblegateway.com/passage/?search=Luke+18%3A20-23&version=RUSV)   
+
+[Polish](https://www.biblegateway.com/passage/?search=Luke+18%3A20-23&version=UBG)    
+
+</details>
+
+<br>
+
+What's the biggest sin you have committed? (What's the greatest commandment you have broken)?
+
+
+Какой самый большой грех вы совершили? (Какую самую большую заповедь вы нарушили)?
+
+<details>
+<summary>Did you think about Matthew 22:37-38</summary>
+
+[English](https://www.biblegateway.com/passage/?search=Matthew+22%3A37-38&version=KJV)  
+
+[Russian](https://www.biblegateway.com/passage/?search=Matthew+22%3A37-38&version=RUSV)   
+
+[Polish](https://www.biblegateway.com/passage/?search=Matthew+22%3A37-38&version=UBG)    
+
+</details>
+
+
+<br>
+
 The price for our sin is death, but not physical death but 
 the eternal separation of our souls from God, the second death.
 
