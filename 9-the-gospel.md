@@ -126,7 +126,7 @@ either accept his way, reject it, or ignore the message
 But how to accept it?
 By throwing away our own way, our own righteousness, put 
 trust in his righteousness, and call upon his name in your 
-heart... Jesus save me! I trust in what you did for me. Done(If done honestly in the heart)
+heart... Jesus save me! I trust in what you did for me on the cross. Done(If done honestly in the heart)
 
 У каждого есть выбор, как реагировать на это, мы можем 
 либо принять его путь, либо отвергнуть его, либо проигнорировать послание
@@ -134,8 +134,7 @@ heart... Jesus save me! I trust in what you did for me. Done(If done honestly in
 Но как принять его?
 Отбросив свой собственный путь, свою собственную праведность, довериться 
 уповать на Его праведность и призывать Его имя в своем 
-сердцем... Иисус, спаси меня! Я верю в то, что Ты сделал для меня. Выполнено (если сделано искренне в сердце)
-
+сердцем... Иисус, спаси меня! Я верю в то, что Ты сделал для меня на кресте. Выполнено (если сделано искренне в сердце)
 <details>
 <summary>Romans 10:3</summary>
 
