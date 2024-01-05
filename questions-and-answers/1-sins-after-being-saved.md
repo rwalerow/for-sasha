@@ -4,6 +4,8 @@ Verses which show that saved people will go to heaven after huge sins(after bein
 
 Стихи, которые показывают, что спасенные люди попадут на небеса после огромных грехов (после спасения)
 
+This is in a way addressed here: [Lordship salvation?](https://www.youtube.com/watch?v=n4vfnoh-4Hs)
+
 <details>
 <summary>John 6:46-48</summary>
 
