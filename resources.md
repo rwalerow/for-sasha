@@ -112,15 +112,6 @@ Why I don't believe calvinism anymore, [playlist](https://www.youtube.com/watch?
 - 1h 47m(very eye opening) - [Part 5/5](https://www.youtube.com/watch?v=O5J_8-g7YZs) 
 
 
-### Guy on the other side of the fance
-
-I still consider this guy a vary moderate one
-
-> Covenant Theology is part of the Reformed view(Calvinism + more doctirne)
-
-19m - [Dispensationalism Vs. Covenant Theology](https://www.youtube.com/watch?v=Q5E1FA5kCFk)
-
-
 ### Another source form the other side of the fance
 
 
